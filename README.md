@@ -1,1 +1,0 @@
-# vinklecut-privacy.github.io
